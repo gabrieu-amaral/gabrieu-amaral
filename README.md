@@ -1,5 +1,5 @@
 ### Olá 🙅‍♂️
 
-- I'm originally from journalism and content creation 👀
-- dev beginner 👶
+- dev junior 🤓
 - alphadust in other places 📷🐤
+- I'm originally from journalism and content creation 👀
