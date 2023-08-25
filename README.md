@@ -1,5 +1,4 @@
 ### Olá 🙅‍♂️
 
-- dev junior 🤓
+- UX UI developer 🤓
 - alphadust in other places 📷🐤
-- I'm originally from journalism and content creation 👀
